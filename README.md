@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for a new role for **Software Engineer**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15kL4Vad78NcdJXtiYa9u1qLQJwFI6LgC/view?usp=sharing](https://drive.google.com/file/d/15kL4Vad78NcdJXtiYa9u1qLQJwFI6LgC/view?usp=sharing)
+- 📄 Know about my experiences -> [RESUME](https://drive.google.com/file/d/1kmW2hhe2y9dUcWFIbVe41P8Sa3Ts-zhT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
